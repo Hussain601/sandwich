@@ -1,0 +1,1 @@
+we are going to heat the pan with butter when the butter starts bubbeling we will add the bread then swiftly add the chees slice and then another bread few seconds later we will flip it and then let the other side get tosted. After the other side gets tosted we will serve it in a plate 
